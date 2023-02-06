@@ -1,1 +1,1 @@
-je suis arrivée jusqu'à la partie K (A...K)(les fonction), j'ai commencé cette partie mais j'ai pas réussi à la finir , et j'ai essayé aussi de commencer la partie pour le Support minimal des flottants mais j'ai pas fini.
+
